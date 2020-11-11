@@ -1,4 +1,4 @@
-### o
+### Checkout.com
 ---
 
 
